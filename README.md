@@ -1,2 +1,6 @@
 # Serenity-Source-Code
-Blawg got trolled so hard, JX on Top!
+Serenitys Source Code
+
+https://discord.gg/4kTkM5SRHH Is their inv, spam this in it..
+
+Nuke bot source
